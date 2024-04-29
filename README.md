@@ -1,1 +1,1 @@
-Studying Computer Science and Math at the University of Alberta.
+Studying Computer Science and Mathematics at the University of Alberta.
